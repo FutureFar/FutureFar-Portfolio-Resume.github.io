@@ -10,10 +10,10 @@ _______
 ## Sword Factory X
 ***Founder/Owner/Community/Media Manager***
 \**April 2022 - Present**\
-\Working on growing and taking care of the Comunnity/Social Media of the game, as well as keeping the game together. \
+\Working on growing and taking care of the Comunnity/Social Media of the game, as well as keeping the game together.\
 \View Game: **[Here](https://www.roblox.com/games/9103460924/HALLOWEEN-Sword-Factory-X)**\
 Group: **[Here](https://www.roblox.com/groups/1164957/TopTier-Games#!/about)**
-Twitter: **[Here](https://twitter.com/SwordFactoryX)**
+Twitter: **[Here](https://twitter.com/SwordFactoryX)*
 Discord: **[Here](https://discord.gg/ToptierGames)**
 
 ## Pirates Destiny
