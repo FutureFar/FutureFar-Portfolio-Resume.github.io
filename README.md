@@ -4,7 +4,7 @@ To put it straight, I'm a pretty damn good Manager. I've been apart of Roblox fo
 
 # Personal Information
 Twitter **[Here](https://twitter.com/FutureFar_)**
-Discord **FutureFar#5115
+Discord **FutureFar#5115**
 
 # Experience
 _______
