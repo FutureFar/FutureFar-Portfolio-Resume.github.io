@@ -22,7 +22,7 @@ Discord: **[Here](https://discord.gg/ToptierGames)**
 Working on growing the server, and taking care of the Community, as well as coming up with unique marketing strategies for a soft launch/outcome
 Discord: **[Here](discord.gg/PiratesDestiny)**
 
-##BloopVille
+## BloopVille
 ***Community Manager/Public Relations***
 **October 2021 - Present**
 Working on growing the server, keeping it active and taking care of the Community, as well as gathering influencers to support the project.
