@@ -1,8 +1,9 @@
 # Introduction
 Hi, I'm FutureFar.\
 To put it straight, I'm a pretty dam good Manager. I've been apart of Roblox for quite awhile now, during my run I have managed to pick up a list of valuble skills, some being Networking, Marketing and Management. Ive worked for numerous front page games, as well have made numerous connections during my journey. I mainly focus on Networking/Public Relations, Community/Social Media Mangment, Marketing/Game Design. Enough of the talking, its time for me to tell you about some of the amazing places I worked for!!!
-# Personal Twitter 
-**[Here](https://twitter.com/FutureFar_)**
+# Personal Information
+Twitter **[Here](https://twitter.com/FutureFar_)**
+Discord **FutureFar#5115
 
 # Experience
 _______
@@ -28,4 +29,14 @@ Discord: **[Here](discord.gg/PiratesDestiny)**
 Working on growing the server, keeping it active and taking care of the Community, as well as gathering influencers to support the project.
 Discord:**[Here](https://discord.gg/BloopVille)**
 Twitter: **[Here](https://twitter.com/BloopVilleGame)**
+
+## TitanAge
+***Marketer/Community representative***
+**June 2021 - August 2021**
+Working on growing the Community and discord and gathering contacts for the game
+View Game: **[Here](https://www.roblox.com/games/6737540754/TITANAGE#ropro-quick-search)**
+
+_______
+
+*** This is only the primary Portfolio/Resume of FutureFar, not all workspaces have been named nor listed below, if you have any questions or concerns feel free to reach out via Twitter or a Direct Message Via Discord***
 
