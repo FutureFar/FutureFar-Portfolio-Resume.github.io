@@ -38,5 +38,5 @@ View Game: **[Here](https://www.roblox.com/games/6737540754/TITANAGE#ropro-quick
 
 _______
 
-*** This is only the primary Portfolio/Resume of FutureFar, not all workspaces have been named nor listed below, if you have any questions or concerns feel free to reach out via Twitter or a Direct Message Via Discord***
+***This is only the primary Portfolio/Resume of FutureFar, not all workspaces have been named nor listed below, if you have any questions or concerns feel free to reach out via Twitter or a Direct Message Via Discord***
 
