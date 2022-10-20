@@ -1,6 +1,6 @@
 # Introduction
 **Hi, I'm FutureFar.**\
-To put it straight, I'm a pretty dam good Manager. I've been apart of Roblox for quite awhile now, during my run I have managed to pick up a list of valuble skills, some being Networking, Marketing and Management. Ive worked for numerous front page games, as well have made numerous connections during my journey. I mainly focus on Networking/Public Relations, Community/Social Media Mangment, Marketing/Game Design. Enough of the talking, its time for me to tell you about some of the amazing places I worked for!!!
+To put it straight, I'm a pretty damn good Manager. I've been apart of Roblox for quite awhile now, during my run I have managed to pick up a list of valuble skills, some being Networking, Marketing and Management. Ive worked for numerous front page games, as well have made numerous connections during my journey. I mainly focus on Networking/Public Relations, Community/Social Media Mangment, Marketing/Game Design. Enough of the talking, its time for me to tell you about some of the amazing places I worked for!!!
 
 # Personal Information
 Twitter **[Here](https://twitter.com/FutureFar_)**
