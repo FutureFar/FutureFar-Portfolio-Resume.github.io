@@ -20,7 +20,7 @@ Discord: **[Here](https://discord.gg/ToptierGames)**
 ## Pirates Destiny
 \***Community Manager/Lead Marketer***\
 **Feburary 2021 - October 2021**
-**August 2022 - Present**
+**August 2022 - November 2022**
 Working on growing the server, and taking care of the Community, as well as coming up with unique marketing strategies for a soft launch/outcome
 Discord: **[Here](discord.gg/PiratesDestiny)**
 
