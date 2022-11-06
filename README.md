@@ -26,7 +26,7 @@ Discord: **[Here](discord.gg/PiratesDestiny)**
 
 ## BloopVille
 \***Community Manager/Public Relations***\
-\**October 2021 - Present**\
+\**October 2021 - November 2022**\
 Working on growing the server, keeping it active and taking care of the Community, as well as gathering influencers to support the project.
 Discord:**[Here](https://discord.gg/BloopVille)**
 Twitter: **[Here](https://twitter.com/BloopVilleGame)**
