@@ -1,16 +1,27 @@
 # Introduction
 **Hi, I'm FutureFar.**\
-To put it straight, I'm a pretty damn good Manager. I've been apart of Roblox for quite awhile now, during my run I have managed to pick up a list of valuble skills, some being Networking, Marketing and Management. Ive worked for numerous front page games, as well have made numerous connections during my journey. I mainly focus on Networking/Public Relations, Community/Social Media Mangment, Marketing/Game Design. Enough of the talking, its time for me to tell you about some of the amazing places I worked for!!!
+Throughout my extensive experience on the Roblox platform, I have developed a robust set of skills, including networking, marketing, management, and game production. Over the years, I have contributed to several front-page games and forged valuable connections within the community. My expertise lies primarily in networking, public relations, community and social media management, game production, and game design. Below, I highlight some of the remarkable projects and teams I’ve had the privilege to work with.
 
+_______
 # Personal Information
 Twitter **[Here](https://twitter.com/FutureFar_)**
+
 Discord **FutureFar#5115**
 
-# Experience
+# Experiences
+
 _______
+## Ro Fighters
+***Project Manager***
+\**May 2023 - Present**\
+Responsible for producing the game and managing developers to ensure smooth progress and delivery. Oversee the project timeline, coordinate between teams, and maintain a focus on achieving the game's vision.
+Twitter: **[Here](https://twitter.com/psykexe)**\
+Discord: **[Here](https://discord.gg/rofighters)**
+
+
 ## Sword Factory X
 ***Founder/Owner/Community/Media Manager***
-\**April 2022 - Present**\
+\**April 2022 - october 2023**\
 Working on growing and taking care of the Community/Social Media of the game, as well as keeping the game together.
 View Game: **[Here](https://www.roblox.com/games/9103460924/HALLOWEEN-Sword-Factory-X)**
 Group: **[Here](https://www.roblox.com/groups/1164957/TopTier-Games#!/about)**
@@ -37,7 +48,17 @@ Twitter: **[Here](https://twitter.com/BloopVilleGame)**
 Working on growing the Community and discord and gathering contacts for the game
 View Game: **[Here](https://www.roblox.com/games/6737540754/TITANAGE#ropro-quick-search)**
 
+
+***Project Manager***
+\**April 2024 - May 2024**\
+Responsible for producing the game and managing developers to ensure smooth progress and delivery. Oversaw the project timeline, coordinated between teams, and maintained a focus on achieving the game's vision.
+
+View Game: **[Here](https://www.roblox.com/games/15198320864/Anime-Clash-Maintenance-in-Progress)**\
+Group: **[Here](https://www.roblox.com/groups/32763927/Anime-Clash-AP#!/about)**\
+Discord: **[Here](https://discord.gg/animerevenge)**
+
 _______
 
-***This is only the primary Portfolio/Resume of FutureFar, not all workspaces have been named nor listed below, if you have any questions or concerns feel free to reach out via Twitter or a Direct Message Via Discord***
+***This portfolio serves as a primary overview of my work as FutureFar. Please note that not all projects and workspaces are listed below. If you have any questions or need further information, feel free to reach out to me via Twitter or send a direct message on Discord.***
+
 
