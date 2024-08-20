@@ -23,9 +23,13 @@ Discord: **[Here](https://discord.gg/rofighters)**
 ***Founder/Owner/Community/Media Manager***
 \**April 2022 - october 2023**\
 Working on growing and taking care of the Community/Social Media of the game, as well as keeping the game together.
+
 View Game: **[Here](https://www.roblox.com/games/9103460924/HALLOWEEN-Sword-Factory-X)**
+
 Group: **[Here](https://www.roblox.com/groups/1164957/TopTier-Games#!/about)**
+
 Twitter: **[Here](https://twitter.com/SwordFactoryX)*
+
 Discord: **[Here](https://discord.gg/ToptierGames)**
 
 ## Pirates Destiny
@@ -33,19 +37,23 @@ Discord: **[Here](https://discord.gg/ToptierGames)**
 **Feburary 2021 - October 2021**
 **August 2022 - November 2022**
 Working on growing the server, and taking care of the Community, as well as coming up with unique marketing strategies for a soft launch/outcome
+
 Discord: **[Here](discord.gg/PiratesDestiny)**
 
 ## BloopVille
 \***Community Manager/Public Relations***\
 \**October 2021 - November 2022**\
 Working on growing the server, keeping it active and taking care of the Community, as well as gathering influencers to support the project.
+
 Discord:**[Here](https://discord.gg/BloopVille)**
+
 Twitter: **[Here](https://twitter.com/BloopVilleGame)**
 
 ## TitanAge
 \***Marketer/Community representative***\
 \**June 2021 - August 2021**\
 Working on growing the Community and discord and gathering contacts for the game
+
 View Game: **[Here](https://www.roblox.com/games/6737540754/TITANAGE#ropro-quick-search)**
 
 
